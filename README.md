@@ -1,1 +1,0 @@
-# www.ridaikrar.web.id
